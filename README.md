@@ -1,0 +1,2 @@
+# Philip-Amegbenyo-
+|Business Development Manager | Mobile Financial Services | Fintech | Customer Acquisition | Agent Network | Customer Service |  A highly experienced Sales Executive who has demonstrated the ability to work with diverse organisational teams to achieve new levels of success in a variety of highly competitive industries. I have great communication skills and years in sales. And that have been recognised for having met the highest standards of excellence in Sales for the year 2018/2019.
